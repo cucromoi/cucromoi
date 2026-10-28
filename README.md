@@ -8,7 +8,7 @@
 
 <i>“Code runs deep like Pyke’s blade, silent but deadly.”</i>
 
-<i>“Naruto’s grind, Chikawa’s heart, WinnerX speed — I’m the developer who turns chaos into legacy.”</i>
+<i>“Naruto’s grind, Chiikawa’s heart, WinnerX speed — I’m the developer who turns chaos into legacy.”</i>
 
 </div>
 
