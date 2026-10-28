@@ -6,7 +6,8 @@
 
 📍 Ho Chi Minh City, Việt Nam
 
-<i>"Code hôm nay, tái sinh ngày mai."</i>
+<i>“Code runs deep like Pyke’s blade, silent but deadly.”
+“Naruto’s grind, Chikawa’s heart, WinnerX speed — I’m the developer who turns chaos into legacy.”</i>
 
 </div>
 
