@@ -7,6 +7,7 @@
 📍 Ho Chi Minh City, Việt Nam
 
 <i>“Code runs deep like Pyke’s blade, silent but deadly.”</i>
+
 <i>“Naruto’s grind, Chikawa’s heart, WinnerX speed — I’m the developer who turns chaos into legacy.”</i>
 
 </div>
