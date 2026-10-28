@@ -65,6 +65,6 @@
 
 ### 💜 Made with curiosity in HCMC
 
-<i>© 2026 cucromoi · IT siêu cấp đẹp trai nhất vũ trụ 🚀</i>
+<i>© 2025 cucromoi · IT siêu cấp đẹp trai nhất vũ trụ 🚀</i>
 
 </div>
